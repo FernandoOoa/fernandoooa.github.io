@@ -1,2 +1,0 @@
-# CURRICULUMVITAE
-Es una tarea 
